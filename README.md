@@ -1,7 +1,11 @@
 -Hi, I’m @MeguMine728
+
 -I’m interested in making Texture Pack 
+
 -I’m currently learning how to make nice texture pack
+
 -I’m looking to collaborate on texture pack artist
+
 -How to reach me ? Just follow me in Planet Minecraft,Twitter, and CurseForge
 
 <!---
